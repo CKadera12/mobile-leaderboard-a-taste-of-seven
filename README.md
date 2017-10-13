@@ -1,1 +1,0 @@
-# mobile-leaderboard-a-taste-of-seven
